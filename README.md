@@ -1,1 +1,0 @@
-# NIELIT_PPT
